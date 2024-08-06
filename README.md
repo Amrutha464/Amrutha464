@@ -1,2 +1,2 @@
 Hi myself Amrutha.S
-i'm from GAT ECE
+I'm from GAT ECE
